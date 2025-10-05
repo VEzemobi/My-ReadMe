@@ -1,4 +1,5 @@
 Hi There, I am Victor
+
 I’m a Business Analyst and your Strategy Partner who helps organizations move from confusion to clarity — whether that means launching something new, fixing inefficiencies, or building systems that actually work.
 
 Most businesses don’t fail because the idea is bad — they struggle because the structure is missing. That’s where I come in.
